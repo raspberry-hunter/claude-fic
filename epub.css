@@ -1,0 +1,60 @@
+/* Minimal prose-first epub styling. Readers override a lot of this; keep it lean. */
+
+body {
+  font-family: serif;
+  line-height: 1.5;
+  margin: 0 5%;
+  text-align: left;       /* justified text + no hyphenation looks terrible on e-ink */
+  widows: 2;
+  orphans: 2;
+}
+
+h1, h2, h3 {
+  font-weight: normal;
+  line-height: 1.2;
+  text-align: left;
+  page-break-after: avoid;
+  break-after: avoid;
+}
+
+h1 {                       /* chapter openers */
+  font-size: 1.6em;
+  margin: 2em 0 1.5em 0;
+  page-break-before: always;
+  break-before: page;
+}
+
+h2 { font-size: 1.2em; margin: 1.5em 0 0.75em 0; }
+
+p {
+  margin: 0;
+  text-indent: 1.25em;
+}
+
+/* No indent on the first paragraph of a section or after a scene break. */
+h1 + p, h2 + p, h3 + p, hr + p, blockquote + p {
+  text-indent: 0;
+}
+
+/* Scene break: markdown *** becomes <hr>. Render it as a centred ornament. */
+hr {
+  border: none;
+  margin: 1.5em 0;
+  text-align: center;
+}
+hr::after {
+  content: "\00A0\00A0\2042\00A0\00A0";   /* asterism */
+  color: inherit;
+}
+
+blockquote {
+  margin: 1em 2em;
+  font-style: italic;
+}
+
+/* Obsidian callouts flattened to blockquotes keep their bolded label. */
+blockquote p:first-child strong { font-style: normal; }
+
+mark { background: none; font-style: italic; }   /* ==highlights== */
+
+img { max-width: 100%; height: auto; }
