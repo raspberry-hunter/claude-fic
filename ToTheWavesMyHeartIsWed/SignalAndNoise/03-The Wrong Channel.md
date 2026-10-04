@@ -58,7 +58,7 @@ The laboratory window is a square of yellow in the wet dark. He stops under the 
 
 He looks at the page. He thinks about writing *ask him* again, without the question mark this time.
 
-He doesn't. He is going to do it instead, which is a thing he has never once in his life chosen over writing something down.
+He doesn't. He is going to do it instead.
 
 He goes in. Pobil doesn't hear the door.
 
@@ -66,13 +66,7 @@ He goes in. Pobil doesn't hear the door.
 
 *Part One: after midnight*
 
-Pobil has two fingers under his chin and the lamp full in his eyes, and Reggie cannot see him at all. That is the first thing. He is a dark shape against a white blaze, and his voice comes out of the blaze saying *they ought to be pinpoints*, and Reggie can feel his own pupils doing exactly as they please.
-
-*Fear dilates the pupils as well.* It is true. He says it because it is true, and because it is the last thing in the room he can stand behind.
-
-*Are you afraid?*
-
-*Yes.*
+Pobil has two fingers under his chin and the lamp full in his eyes, and Reggie cannot see him at all: only a dark shape against a white blaze, and a voice out of it saying *they ought to be pinpoints*. *Fear dilates the pupils as well*, Reggie says, because it is true, and because it is the last thing in the room he can stand behind. And when Pobil asks whether he is afraid, he says yes.
 
 Then the hand moves.
 
@@ -112,7 +106,7 @@ And Reggie holds still -- because he finds, to his own astonishment, that he wan
 
 When Pobil's hand travels down from his hip, slow, palm flat, and slides between his thighs and finds him already wet and waiting, he hears the sound he makes, and is for a fraction of a second purely astonished, as at a new species.
 
-He did not expect this. He is an educated man -- perhaps lacking in a plethora of practical experience in this area, but one is given to understand a certain amount in the way of mechanics -- but that he could be touched in such a way, with a feeling like current going all the way through him, and not stopping but intensifying, this he did not know -- and more than that, that he was ready for it; that some part of him had been ready for a long while without troubling to tell the rest. He has the absurd thought that his body reached its conclusion months ago, somewhere around the cleat, and neglected to inform the investigator.
+He did not expect this. He is an educated man -- perhaps lacking in practical experience in this area, but one is given to understand a certain amount in the way of theoretical knowledge, of mechanics -- but that he could be touched in such a way, with a feeling like current going all the way through him, and not stopping but intensifying, this he did not know -- and more than that, that he was ready for it; that some part of him had been ready for a long while without troubling to tell the rest. He has the absurd thought that his body reached its conclusion months ago, somewhere around the cleat, and neglected to inform the investigator.
 
 *That was not in the protocol.*
 
@@ -120,7 +114,7 @@ He did not expect this. He is an educated man -- perhaps lacking in a plethora o
 
 *There's always a protocol.*
 
-He tries, for a while, to keep thinking through it, to observe. Pobil's fingers pressing into him, slowly, and the way that the touch seems to travel all the way across his body at once. Pobil moving down the bed and his mouth where his hand had been and the way he all but convulses around the other man's mouth, which he had not known could do that. He finds himself saying, too fast, trying to keep hold of anything at all, "If this is to be repeated, and I think it ought to be, we should really establish some sort of baseline, so that subsequent observations, which I'd propose we --" He can hear the sentence going wrong even as he says it, a subordinate clause with nowhere to go; and Pobil answers it, without lifting his head, by doing something -- finding a place in him -- that ends the sentence, and with it any rational thought whatsoever. He has one hand in Pobil's hair and the other across his own eyes, because there is suddenly far too much to attend to and none of it is anything he can see; and at the very end, when everything in him draws tight as wire and then lets go all at once, there is only one call left in him. It is Pobil's name. He hears it come out of him in a voice he has never used for anything in his life.
+He tries, for a while, to keep thinking through it, to observe. Pobil's fingers pressing into him, slowly, and the way that the touch seems to travel all the way across his body at once. Pobil moving down the bed and his mouth where his hand had been, and the way he all but convulses around the other man's mouth, which he had not known could do that. He finds himself saying, too fast, trying to keep hold of anything at all, "If this is to be repeated, and I think it ought to be, we should really establish some sort of baseline, so that subsequent observations, which I'd propose we --" He can hear the sentence going wrong even as he says it, a subordinate clause with nowhere to go; and Pobil answers it, without lifting his head, by doing something -- finding a place in him -- that ends the sentence, and with it any rational thought whatsoever. He has one hand in Pobil's hair and the other across his own eyes, because there is suddenly far too much to attend to and none of it is anything he can see; and at the very end, when everything in him draws tight as wire and then lets go all at once, there is only one call left in him. It is Pobil's name. He hears it come out of him in a voice he has never used for anything in his life.
 
 Afterwards he lies with his arm over his eyes, small aftershocks still going through him like the last of a call dying out of a tank, and listens to his own heart come down, and feels two fingers settle on the inside of his wrist.
 
@@ -138,31 +132,27 @@ Then Pobil shifts -- a small adjustment, the angle of his hips, the sort of corr
 
 Reggie has spent his life at a distance. On the other side of the glass; at the end of a cable; forty yards off across a tank. He has made a career of it. He understands now, with Pobil's weight on him and Pobil's breath against his mouth, that he has never once been this close to anyone, and that he did not know -- had not let himself know -- that it was a thing he wanted. He wants it now. He hooks his heels behind Pobil's thighs and pulls him even closer, and Pobil makes a sound against his mouth, low and broken, that Reggie files at once under a heading of its own.
 
-Then they are moving together, slow and then not slow at all, in the narrow creaking bed with the rain hissing on the roof, and he stops filing anything. He watches Pobil's face come apart above him, a little at a time, and then more and more. And then, somewhere in the middle of watching, without any warning he was paying attention to, it happens to him again -- he had not known it could, twice, and so soon; he will want to look into that -- and he goes over with his eyes still open, because he is not, now, going to look away from anything. Pobil makes a helpless sound, and he puts his hand to Pobil's cheek, and Pobil turns his mouth into the palm; and Reggie feels it more than hears it as Pobil goes over -- his own name, the private one, said into his hand.
+Then they are moving together, slow and then not slow at all, in the narrow creaking bed with the rain hissing on the roof, and he stops filing anything. He watches Pobil's face come apart above him, a little at a time, and then more and more. And then, somewhere in the middle of watching, without any warning he was paying attention to, it happens to him again -- he had not known it could, twice, and so soon; he will want to look into that -- and he goes over with his eyes still open, because he is not, now, going to look away from anything. Pobil makes a rough sound it is not clear he knows he's making, and he puts his hand to Pobil's cheek, and Pobil turns his mouth into the palm; and Reggie feels it more than hears it as Pobil goes over -- his own name, the private one, said into his hand.
 
 Afterwards he lies half over Pobil, the other man's hand moving lightly over his back.
 
 For a while neither of them says anything. The rain has thinned; he can hear it dripping off the eaves, irregular, and under that the generator, and under that Pobil's heart, slowing, which he finds he is counting without meaning to.
 
-"You crossed it out," Pobil says eventually. "In the book. *Ask him?*"
+"You haven't done that before," Pobil says. His hand has stopped on Reggie's back -- not withdrawn; waiting, the way it waits on a pulse.
 
-"Nineteen times."
+He considers lying, out of long habit, and finds that he has no wish to; it seems a waste of the evening. "No. It was --" He looks for the word, and there isn't one, or none he could say aloud, even here, even now. He settles for the nearest thing he has. "Educational."
 
-"Nineteen." Pobil's hand stops on his back, and then starts again. "You counted."
+Pobil snorts into his hair. "I'm glad. That's high praise, from you."
 
-"I count everything." He considers. "It was the first thing I ever crossed out. In my life."
+"It is," Reggie agrees, only slightly ironically. Then, because Pobil's hand has begun to move again and it is very difficult to be ironic about anything underneath it: "I'll want to repeat the result."
 
-Pobil is quiet. Then: "And the twentieth time?"
+"Tomorrow," Pobil says. "And the day after." He stops there, and Reggie knows why; they are both thinking about the launch, and what tomorrow is, and of the distinct possibility that they will not, after all, be able to repeat the result. Neither of them says so. After a moment Pobil's hand goes on down his back, slow and steady, as though it had never stopped.
 
-"There wasn't one. I came here instead."
+Reggie means to answer, and yawns instead.
 
-"With the Colonel's rum."
+"Go to sleep, Reggie," Pobil says. "You have to be frightened at six."
 
-"Hester's. She was on the verandah when I came up from the beach. She gave it to me." He feels Pobil go still underneath him. "I think she knows."
-
-"Hester knows everything," Pobil says, as though it were a well-established clinical fact, and his hand resumes its slow way down Reggie's back. "Go to sleep, Reggie. You have to be frightened at six."
-
-"*You* have to be frightened at six. I have to be convincing." He can feel sleep coming up under him like a tide, and he does not want it yet. There is a great deal more he would like to say, and he has wasted six months not saying any of it. "Pascual. Tomorrow. When he looks at you -- and he will; he'll look at you the way he looks at everything, as though he's already opened it -- you mustn't --"
+"*You* have to be frightened at six. I have to be convincing." He can feel sleep coming up under him like a tide, and he does not want it yet. There is a great deal more he would like to say, and he has wasted six months not saying any of it. Instead he says, "Pascual. Tomorrow. When he looks at you -- and he will; he'll look at you the way he looks at everything, as though he's already opened it -- you mustn't --"
 
 "Mustn't what?"
 
@@ -170,7 +160,7 @@ Pobil is quiet. Then: "And the twentieth time?"
 
 He knows exactly how the sentence ends. *That you'd lie for me.* He has it; it is right there; it is very important, and he only has to say it. And the bed is warm, and the rain has nearly stopped, and Pobil's hand is moving on his back, slow and steady as a pulse, and --
 
-He falls asleep in the middle of a sentence, with his face in Pobil's neck. The last thing he thinks, as far as he can afterwards remember, is about ten hundred hours tomorrow, and the launch, and the man on it, and what that man will see.
+He falls asleep in the middle of his sentence, with his face in Pobil's neck. The last thing he thinks, as far as he can afterwards remember, is about ten hundred hours tomorrow, and the launch, and the man on it, and what that man will see.
 
 *Let him look,* he thinks. *I've been seen already.*
 
@@ -186,7 +176,7 @@ The notebook is in the shirt pocket. He knows what is in it; he watched Pobil pu
 
 *P.*
 
-Nobody has ever written in one of his notebooks before. Not in nine years. Not even Spilsbury, who had his own.
+Nobody has ever written in one of his notebooks before. Not in seven years. Not even Spilsbury, who had his own.
 
 He reads it four times. Then, because he has been told to write everything down, he uncaps his pen and writes underneath:
 
@@ -196,7 +186,7 @@ He reads it four times. Then, because he has been told to write everything down,
 
 Then he shaves.
 
-He does it carefully, by the small square of mirror over the washstand, with the light coming up pink behind the casuarinas, and halfway down his jaw he realises that he is listening. Waiting. There is a sentence that has come to him in shaving mirrors, on and off, for eight years, in a voice he eventually identified as his own. It came less often after Plymouth, and less again after he came out here; but it has never quite stopped. He waits for it with the razor lifted.
+He does it carefully, by the small square of mirror over the washstand, with the light coming up pink behind the casuarinas, and halfway down his jaw he realises that he is listening. Waiting. There is a sentence that has come to him in shaving mirrors, on and off, for six years, in a voice he eventually identified as his own. It came less often after Plymouth, and less again after he came out here; but it has never quite stopped. He waits for it with the razor lifted.
 
 It doesn't come.
 
@@ -364,15 +354,13 @@ He does the sum before Ferris has finished turning away. He does it the way he d
 
 *R.T. -- Thank you.*
 
-*P**.** **-**-** **1**.*
-
 *P. -- R.T. has learned "cabezota." Uses it correctly, about me. Pronunciation: Anglican.*
 
 *R.T. -- Gamma, 4.1 kg fish. Delta stole 0.6 kg of it and then looked at Jean.*
 
 *P. -- Delta soaked me again. White coat. I am going to stop wearing the white coat.*
 
-*R.T. -- He is not going to stop wearing the white coat.*
+*R.T. -- **O**bserv**ation**:** **P.* *is not going to stop wearing the white coat.*
 
 *P. -- Rumpled R.T.'s bed in his hut on Thursday, for Juan's wife's benefit. He had made it up again by Friday.*
 
@@ -442,11 +430,11 @@ Reggie remembers. He has the figure in a notebook in a trunk under his bed: the 
 
 "Two point three seconds," he says.
 
-"Two point three," Spilsbury agrees, as a man might agree about the weather. "A remarkable thing, a cistern." And then, before Reggie can find out whether that means what he thinks it means, he has turned the chart a little and is asking about the tides; and the moment is gone. Reggie's pencil is moving again across the margin, because the tide is interesting, because the boundary will shift with it, because there is nobody else alive he can talk to about any of this without first having to explain what he means by a layer -- and he has missed it, God help him, he has missed this -- and for twenty minutes he forgets everything else. It is like being twenty-six. It is like being warm.
+"Two point three," Spilsbury agrees, as a man might agree about the weather. "A remarkable thing, a cistern." And then, before Reggie can find out whether that means what he thinks it means, he has turned the chart a little and is asking about the tides; and the moment is gone. Reggie's pencil is moving again across the margin, because the tide is interesting, because the boundary will shift with it, because there is nobody else he can talk to about any of this without first having to explain what he means by a layer -- and he has missed it, God help him, he has missed this -- and for twenty minutes he forgets everything else. It is like being twenty-six. It is like being warm.
 
 Then he looks up and sees Pobil at the top of the companionway, and stops.
 
-He doesn't decide to stop. He simply finds that he has, the way one finds one has taken one's hand off a stove.
+He doesn't decide to stop. He simply finds that he has.
 
 \* \* \*
 
@@ -482,7 +470,7 @@ Reggie snorts. "That's certainly the case. We can't even distinguish between two
 
 Pobil laughs then, cleanly. "It's all Hypothesis B."&#32;
 
-"And A."
+"And Hypothesis A."
 
 "Yes." Pobil smiles. After a second it fades, and he takes a breath. "Spilsbury said that it was inefficient. And then he said, *Still*."
 
@@ -504,9 +492,9 @@ Pobil says, "The plan. We're still --"
 
 "I just thought," Pobil says. "You didn't know. You do now. I didn't know if that would change anything."
 
-Now he knows why. "It doesn't," Reggie says. "Everything that was true then is still true now." He considers that statement, to see whether he believes it. He does.
+Now he knows. "It doesn't," Reggie says. "Everything that was true then is still true now." He considers that statement, to see whether he believes it. He does.
 
-It doesn't change anything. But it is heavier. The day after tomorrow, in a river, with a dead mermaid's voice, he is going to take the last thing a dying man wants out from under him, and he knows it. He runs the sum again, the way he ran it on the jetty two years ago: one man under an awning, on one side; on the other, a boy in the mangroves and everything that lives in that river. It comes out the same. It is still not difficult arithmetic. It is only harder to do.
+It doesn't change anything. But it is heavier. Tomorrow, in a river, with a dead mermaid's voice, he is going to take the last thing a dying man wants out from under him, and he knows it. He runs the sum again, the way he ran it on the jetty two years ago: one man under an awning, on one side; on the other, a boy in the mangroves and everything that lives in that river. It comes out the same. It is still not difficult arithmetic. It is only harder to do.
 
 "All right," Pobil says. "Just -- tell me? If any of it is too much."
 
@@ -554,8 +542,6 @@ The difference is that he knows what the boy is seeing.
 
 He knows exactly. It is all in the notebook, in two hands. Chairs, and wind, and coffee, and snoring with a name; a bed made and unmade and made again; a word not yet said in either of two languages. Every bit of it is in Pobil, and so every bit of it is going into the boy now, through a palm on a wet cheek -- and Reggie is in it. All of him. All the parts he has spent every year since Deptford making certain nobody would ever see: being seen, secondhand, by a boy he sent into the sea.
 
-*Still*, Spilsbury said, at the rail. Reggie thinks he understands it now, or nearly. He is outside this door too. He will never stand where Pobil is standing, in the brown water with his hand on the boy's face; that door was never his, and never will be. But he is inside another one. He has been inside it since the night he came in out of the rain with his hands full of sand. And the man behind him under the awning, who has spent forty years getting into everything, has looked at it from the verandah and from the chart table and from the rail, and called it inefficient, and said *Still* -- and does not, Reggie is almost sure, quite understand that it is a door at all.
-
 He waits to be afraid. He has been afraid of precisely this for as long as he can remember.
 
 He isn't. He stands in the bow with one hand on the projector switch and the river light in his eyes, and he finds that he does not mind. *Let him look.* There is nothing in there now that Reggie would mind him seeing.
@@ -564,11 +550,11 @@ Nearly nothing.
 
 The boy turns his face out of Pobil's hand. He talks; Reggie can't hear what. He puts the spectacles on, crooked. And then he looks across the forty yards of brown water at the bow of the launch, and Reggie watches his eyes find him, and focus, and stay.
 
-Nobody has ever looked at him like that. As though they already knew him -- all of him -- and had found nothing in it to use.
+It is the look of someone who already knows him -- all of him -- and has found nothing in it to use.
 
 The boy nods.
 
-Reggie threads the second tape. It is exactly as heavy as he knew it would be, two nights ago on the hatch cover, and no heavier. He has already done the sum.
+Reggie threads the second tape. It is exactly as heavy as he knew it would be, last night on the hatch cover, and no heavier. He has already done the sum.
 
 He has carried it in a War Department case through four sets of lodgings and two oceans. He has listened to it perhaps twice. He has never once played it into water. It is her voice -- Eleven's, from the store-cupboard at Deptford, with the gain turned down and then down again -- and as it goes out of the drum into the river, for the first time in eight years someone hears it who can understand what it says.
 
@@ -634,19 +620,55 @@ Then he takes his hands off the rail. It takes more effort than it should; it is
 
 \* \* \*
 
+There is a page near the front of the notebook that has been blank for two years.
+
+It has a heading -- *P., before* -- in Reggie's small upright hand, and under the heading nothing at all. Every other page about Pobil is full: pulses, chairs, coffee, the wind, a snore with a name. Reggie knows the year he was born, and the town, because both are on his papers; and he knows that Pobil speaks of horses "at home" and has never once said where home is now. He has never asked. He grew up among men who had come back from one war and did not speak of it, and he has a trunk of his own under his bed. He does not ask other men about theirs.
+
+The day after the river, in the afternoon, with Spilsbury shut in his cabin and the *Corinne* rolling north under a white sky, Pobil comes and leans on the stern rail beside him and says, without preamble, "He saw it, you know."
+
+"Who saw what?"
+
+"The boy. When I had my hand on his face." Pobil is looking at the wake, not at him. "He saw all of it. Further back than you've ever been." He is quiet a moment. "I lay awake last night thinking that there is a boy in a river in Guiana who knows things about me that you don't. That didn't seem right."
+
+Reggie says nothing. He has learned, lately, when that is the most useful thing to say.
+
+"Huelva," Pobil says. "You know that much; it's on my papers. The town sits at the mouth of two rivers, and one of them runs red, because an English company has been digging copper out of the hills above it for eighty years, and nobody in Huelva is ever allowed to forget who owns the river." His mouth twists. "My father doctored horses on the marisma. The marsh. Miles of it, flat as a table, with the tide coming in under the river water twice a day, brown and warm. You don't learn to swim in the marisma. You learn to walk in water. That's why I swim like a dog."
+
+*Fresh over salt*, Reggie thinks, and doesn't say it.
+
+"I was a vet, like him. Then there was the war, and I was a vet for the army, which mostly meant mules. And then for a while I was at a hospital, because they were short of anyone who could hold a knife." He stops. When he goes on, some of it is in Spanish, low and quick, and Reggie doesn't ask him to translate. He isn't sure it's meant for him to understand; only to hear. Then, in English again: "There was a surgeon there. Very able. Very curious. He had prisoners, and nobody to tell him not to, and he wanted to know things." Pobil's hands are quite still on the rail. "I knew Spilsbury the moment I saw him on the jetty. Not him. The kind."
+
+He says nothing else about the hospital. Reggie doesn't ask.
+
+"I left in 'thirty-nine," Pobil says. "Over the mountains in February, with half the country, in the snow. France didn't want us; they put us on a beach behind wire. Then a boat to Santo Domingo, which took us for reasons of its own. Then a colleague of a colleague, and a post in Trinidad. And then the Colonel's wife, who wanted someone who could keep animals alive, and didn't mind about papers." He shrugs. "And here I am. Complaining about the wind."
+
+"Four hundred and thirty-one times."
+
+"I know. I saw it in the notebook." Pobil looks at him at last. "That's all. That's the little. There's more, but it isn't any better."
+
+Reggie looks at him for a long moment: the man who came over the Pyrenees in the snow, and onto a French beach behind wire, and across an ocean, and who went into a brown river yesterday without hesitating, swimming like a dog.
+
+"Thank you," he says. It is not enough, and it is what he has.
+
+That night in the cramped cabin, with Pobil asleep in the upper bunk, Reggie turns to the page near the front and considers it for a long time. Then he writes one line under the heading, the shortest entry in the book.
+
+*Huelva. Two rivers; one red. The marsh. 1939.*
+
+He will not add to it unless he is told more. He finds that he can wait.
+
+\* \* \*
+
 The *Corinne* comes in to the cay two days later. Spilsbury does not come ashore. She is going on to Port of Spain, where there is an aeroplane.
 
 He is on deck when Reggie and Pobil go down the ladder to the Institute's launch, in a canvas chair in the shade of the awning, with a rug over his knees. Reggie stops at the head of the ladder.
 
-He has known for four days. He has not once let himself look. And now, for the first time in nine years, he looks at the body.
+He has known for four days. He has not once let himself look. Now he looks at the body.
 
 The suit, too large by a size. The hands on the rug, the colour of old ivory. The yellow in the whites of the eyes, which is not the light, and never was. The way he sits, a little to the left, as though the right side of him were somewhere he would rather not lean. The way he is not standing up.
 
 Spilsbury watches him look. Reggie sees him see it -- sees him understand that Reggie is, at last, looking -- and something comes into his face that Reggie has seen there exactly once before: on the bonded floor at Deptford, at seven in the morning in the spring of 1946, when Spilsbury took a pair of headphones off very slowly and said "Names," and looked at him as though he were something worth looking at. Not the look that uses. The one that came before it.
 
 "Yes," Spilsbury says softly. "That's it, Reginald. That's how it's done."
-
-It goes in. He lets it.
 
 In 1949 he walked out of an office and down a flight of stairs without saying goodbye, because he did not trust himself to say it and keep walking. He finds that he trusts himself now.
 

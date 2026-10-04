@@ -116,11 +116,13 @@ Pascual sets his beaker down. He is not a squeamish man; he cannot afford to be,
 
 "I know you did. It's the reason I left them. It was a sentence I'd been saying to myself for two years before I found the nerve to resign." He drinks at last: a small, neat swallow. "It was disagreeable to hear it in your voice."
 
-Jean, at breakfast afterwards, telling anyone who would listen: *he went all white and quiet, I've never seen him like that, not even when Alpha died.* Pascual had told himself at the time that it was only a hit, a palpable one, and that a man like Reggie Tar enjoys being told the truth about himself no more than other men do.
+He sets the beaker down. "Your meaning it, I could have borne. What I minded was that you were right. I'd kept Charles away from Beta for my separation trial, and put him in the water with Gamma instead, and written down very carefully how sick each of them got. I'd have gone on doing it for a cleaner curve. I resigned from those labs, Pascual. It seems I hadn't resigned from the man who worked in them."
+
+Jean, at breakfast afterwards, telling anyone who would listen: *he went all white and quiet, I've never seen him like that, not even when Alpha died.* Pascual had told himself at the time that it was only a hit, a palpable one, and that a man like Reggie Tar enjoys being told the truth about himself no more than other men do. It had not occurred to him that Reggie might agree.
 
 "And now," he says, carefully, "you've done this. To prove me wrong."
 
-"No. I did this because Beta is the only one of them anyone has ever kept alive, and the method that kept him alive can't be published, and Spilsbury would take him apart to look for it. And then he'd take Charles apart. Figuratively, if he were in a good mood." Reggie considers. "Proving you wrong was a secondary benefit."
+"No. I did this because Beta is the only one of them anyone has ever kept alive, and the method that kept him alive can't be published, and Spilsbury would take him apart to look for it. And then he'd take Charles apart. Figuratively, if he were in a good mood." Reggie considers. "No longer proving you right was a secondary benefit."
 
 Despite everything, Pascual laughs. It hurts.
 
@@ -172,7 +174,7 @@ Pascual's hand is still on his. He becomes aware of it all at once, the way one 
 
 "Yes." Reggie takes his hand back -- gently; he does everything gently tonight, and it is unnerving -- and reaches into his shirt pocket. "That's the other thing I came to tell you. There is a reasonable probability that by the end of the week I'll be on an aeroplane to London in the company of some very courteous men, or at any rate that I won't be employed here any longer. Hester and the Colonel will do what they can. Spilsbury is very good at not being stopped. So I'd like to disclose the rest of my data while I'm still in a position to."
 
-He holds out a notebook. Small, black, oilcloth-covered, swollen at the edges with damp: the kind every man at the Institute keeps in a pocket for field notes. Pascual has watched him write in it a thousand times, on the verandah, at meals, in the boat.
+He holds out a notebook. Small, black, oilcloth-covered, swollen at the edges with damp. Pascual has never once seen him without one, and has watched him write in it a thousand times, on the verandah, at meals, in the boat.
 
 "What data?"
 
@@ -480,7 +482,7 @@ New wounds, laid down over the old ones. Covering his tracks the only way he cou
 
 Spilsbury is not what Pascual expected.
 
-He had expected -- he is not sure what. Someone like the reports: cold, exact, tidy as a plate. The man who comes down the launch's gangway behind the American commander is tall and silver-haired and slightly stooped, in a pale linen suit that has somehow survived a sea voyage without a crease, with a red carnation in his buttonhole that cannot possibly be fresh and is. He has a soft voice. He has a kind face. He shakes the Colonel's hand, and Hester's, and Jean's, and when he comes to Reggie he does not shake his hand at all but only looks at him, for a long moment, with something that on any other man's face Pascual would have called fondness.
+He had expected -- he is not sure what. Someone like the reports: cold, exact, tidy as a plate. The man who comes down the launch's gangway behind the American commander is tall and silver-haired and slightly stooped, in a pale linen suit that has somehow survived a sea voyage without a crease, with a red carnation in his buttonhole that cannot possibly be fresh and is. He has a soft voice. He has a kind face. He shakes the Colonel's hand, and Hester's, gloved even in this heat, and Jean's, and when he comes to Reggie he does not shake his hand at all but only looks at him, for a long moment, with something that on any other man's face Pascual would have called fondness.
 
 "Reginald," he says.
 
@@ -1120,7 +1122,7 @@ That night in the cabin, before Pascual can open his mouth, Reggie says, "Don't.
 
 Pascual sits on the edge of the bunk and puts his hand flat on Reggie's chest, over his heart, and leaves it there. He doesn't understand the work. He never will. He thinks Reggie knows that, and has chosen him anyway.
 
-On the third night Pascual finds Spilsbury alone at the rail.
+On the third evening, at dusk, Pascual finds Spilsbury alone at the rail.
 
 The coast is close now. You can smell it: rot and silt and something green, a river smell, coming out over the sea to meet them. Spilsbury stands very straight, both hands on the rail, and in the light from the wheelhouse his face is the colour of tallow.
 
@@ -1141,6 +1143,8 @@ It is so unexpected that Pascual answers him honestly. "Badly," he says. "Out lo
 "How very inefficient," says Spilsbury, and smiles; and then, after a long moment, in a voice Pascual has not heard from him before, almost wistful: "Still."
 
 Then he takes his hands from the rail, and touches his hat, and goes below, and leaves Pascual alone with the smell of the river and the uncomfortable knowledge that for perhaps ten seconds he has been sorry for him.
+
+Afterwards he goes to find Reggie on the hatch cover, and tells him all of it: the six months, and the door, and *Still*.
 
 \* \* \*
 
@@ -1386,21 +1390,9 @@ Reggie lowers his hands. His face is quite dry, and quite white.
 
 Pascual looks at him for a long time: at the stubble in the lamplight, and the white knuckles, and the cracked old notebook from the Strand.
 
-"He asked me about you," he says. "On the *Corinne*. The night before the river."
+"I think," Pascual says carefully, "the difference is that you let someone stand beside you at the sink. That's all the difference in the world. And I don't think he ever told himself it was a choice he might make."
 
-Reggie goes still.
-
-"He said he'd watched us on the verandah. He wanted to know how we managed without it. The door." Pascual hears his own voice, careful. "I told him: badly. Out loud. In two languages. He said, *How very inefficient.*"
-
-Reggie lets out a breath that in another man might have been a laugh.
-
-"And then," Pascual says, "he said, *Still.*"
-
-"Still," Reggie repeats.
-
-"Like that. As if he'd have liked to try it."
-
-Reggie looks at him. And then something in his face gives way -- not all at once, but the way a sea wall goes, a stone at a time and then the rest -- and he puts his head down on his folded arms on the bench, among the notebooks, and weeps: badly, almost silently, his shoulders shaking, the way a man weeps who has not done it since school and has forgotten entirely how it is done.
+Reggie looks at him. Then something in his face gives way -- not all at once, but the way a sea wall goes, a stone at a time and then the rest -- and he puts his head down on his folded arms on the bench, among the notebooks, and weeps: badly, almost silently, his shoulders shaking, the way a man weeps who has not done it since school and has forgotten entirely how it is done.
 
 Pascual gets up and stands behind him and puts his arms round him, and holds on. For once he does not take his pulse. He does not count anything at all.
 
